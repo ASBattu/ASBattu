@@ -1,4 +1,4 @@
-Find more about me at [asbattu.com](www.asbattu.com)
+Find more about me at [asbattu.com](https://www.asbattu.com)
 
 - 👋 Hi, I’m @ASBattu
 - 👀 I’m interested in ...
